@@ -1,1 +1,0 @@
-This is a communinty of respect. All contributions will be valued. Consequently, hateful criticism is not tolerated. Otherwise, enjoy yourself.
